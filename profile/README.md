@@ -6,7 +6,7 @@
 
 ## A Creative Agency and Technology Company
 
-Welcome to DIGIQ 360, a dynamic creative agency and technology company dedicated to transforming ideas into innovative digital solutions. Inspired by industry leaders like 99x, we specialize in blending cutting-edge technology with creative design to deliver exceptional results for our clients.
+Welcome to DIGIQ 360, a dynamic creative agency and technology company dedicated to transforming ideas into innovative digital solutions. We specialize in blending cutting-edge technology with creative design to deliver exceptional results for our clients.
 
 ### About Us
 
