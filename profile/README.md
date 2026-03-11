@@ -45,4 +45,4 @@ Follow us on social media for the latest updates and insights.
 
 ---
 
-*DIGIQ 360 - Where Creativity Meets Technology*
+*DIGIQ 360 - UNLOCK THE PoTENTIAL OF YOUR FUTURE BRAND*
