@@ -1,3 +1,7 @@
+<div align="center">
+<img src="logo.png" alt="FUTURA Logo" width="1000"/>
+</div>
+
 # DIGIQ 360
 
 ## A Creative Agency and Technology Company
