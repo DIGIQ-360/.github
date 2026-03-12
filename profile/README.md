@@ -36,10 +36,10 @@ Our diverse team brings together expertise in design, development, and strategy.
 
 Ready to bring your ideas to life? Get in touch with us!
 
-- **Email**: info@digiq360.com
-- **Phone**: +1 (123) 456-7890
+- **Email**: digiq360@gmail.com
+- **Phone**: +94 70 59 84 324
 - **Website**: [www.digiq360.com](https://www.digiq360.com)
-- **Address**: 123 Innovation Drive, Tech City, TC 12345
+- **Address**: 9/6 3rd Mission Lane, Pitakotte, Kotte
 
 Follow us on social media for the latest updates and insights.
 
